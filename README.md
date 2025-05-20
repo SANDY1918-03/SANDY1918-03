@@ -1,9 +1,6 @@
 # Santhosh Kumar S
 
 **Optometry Student**  
-21, Gandhi Nagar, Udayampalayam Road, Chinnavedampatti  
-Coimbatore - 641049  
-📞 6364170304  
 📧 [Santhosh191803@gmail.com](mailto:Santhosh191803@gmail.com)  
 [LinkedIn: iamsanthoshkumars](https://linkedin.com/in/iamsanthoshkumars)
 

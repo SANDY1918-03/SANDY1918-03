@@ -16,7 +16,7 @@ Motivated and detail-oriented optometry student with a solid academic foundation
 
 **Bachelor of Optometry (B.Optom)**  
 PPG Institute of Optometry, Coimbatore - 641035  
-_Expected Graduation: June 2025_ &nbsp; | &nbsp; **GPA:** 74%  
+_Expected Graduation: June 2025_ &nbsp; | &nbsp; **GPA:** 7.4
 **Relevant Coursework:** Ocular Anatomy, Visual Optics, Clinical Optometry, Pharmacology
 
 **High Secondary School (12th Grade - Science)**  

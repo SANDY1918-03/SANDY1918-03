@@ -64,6 +64,8 @@ _Year of Completion: 2021_ &nbsp; | &nbsp; **Percentage:** 74%
 - **Tamil:** Native  
 - **English:** Fluent  
 - **Kannada:** Conversational
+- **Malayalam:** Conversational
+- **Hindi:** Conversational 
 
 ---
 
@@ -73,5 +75,3 @@ _Year of Completion: 2021_ &nbsp; | &nbsp; **Percentage:** 74%
 Coimbatore – 641035
 
 ---
-
-> _Portfolio generated with ❤️ by Santhosh Kumar S_
